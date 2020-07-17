@@ -1,3 +1,4 @@
 # CV
-# Gonzalo Cagnetta
-## Lic. química 
+Nombre y apellido: ⁕⁕ Gonzalo Cagnetta ⁕⁕
+Título: ## Licenciado en Química
+
